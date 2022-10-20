@@ -1,1 +1,1 @@
-https://NKolosov097.github.io/website_MOGO
+https://nkolosov097.github.io/website-MOGO/
